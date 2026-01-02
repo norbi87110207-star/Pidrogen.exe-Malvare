@@ -1,2 +1,2 @@
 # Pidrogen.exe-Malvare
-Password: Pidrogen_Trojan
+I'm Not Responsible For Any Damages
